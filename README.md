@@ -1,1 +1,30 @@
-# Family-Lawyer-Auckland
+<h1 style="text-align: center;"><a href="https://lawyers-auckland1.co.nz/family-lawyer-auckland/">Family Lawyer Auckland</a></h1>
+<p><a href="https://lawyers-auckland1.co.nz/family-lawyer-auckland/"><img style="display: block; margin-left: auto; margin-right: auto;" src="https://media.istockphoto.com/photos/lawyer-holding-document-and-speaking-to-jury-in-courtroom-picture-id104821087?k=20&amp;m=104821087&amp;s=612x612&amp;w=0&amp;h=Vy0Vq1gG-lChVczRW7epjXRFetM9T2pZ05CgsmnHa5U=" alt="" width="612" height="390" /></a></p>
+<p style="text-align: justify;">Child SUPPORT</p>
+<p style="text-align: justify;">All references to the law or Act in this decision refer in reference to the Child Support Act 1991 and the subsequent amendments to it, unless otherwise stated.</p>
+<p style="text-align: justify;"><br />A COMMISSIONER'S DECISION ON FAMILY</p>
+<p style="text-align: justify;"><br />This is a change from the standard formula for child support assessment.</p>
+<p style="text-align: justify;"><br />FINDINGS</p>
+<p style="text-align: justify;"><br />The Family Commissioner took the decision on July 30, 2004 that there was to be no departure from the usual formula assessment of child support.</p>
+<p style="text-align: justify;"><br />In the court hearing, Mr. Smith said that he experienced a heart attack during the child support year in 2004. He also said that he resigned from his previous job due to his medical condition. In the month of September, Smith's partner died suddenly. He was dependent on his wife's income.</p>
+<p style="text-align: justify;"><br />Mr. Smith further said that his wife was responsible for everything financial and he was not the best position to tackle the matter of child support, especially when his partner passed away. He was required to provide an medical certificate to show that his medical condition at the time, along with the death of his wife affected his capacity to manage child support matters.</p>
+<p style="text-align: justify;"><br />In my opinion, I noted that Mr. Smith admitted that he had the right to get the school record, however he failed to provide such a report by 27 July (one week after the hearing). It is not true. The letter was probably filed and was not made public until a significant time afterward.</p>
+<p style="text-align: justify;"><br />After reading this school report I am pleased to see that Mr. Smith was unable to deal the lower income in 2004 because of his heart attack and his wife's death. He could only do so by using the legal estimation process.</p>
+<p style="text-align: justify;"><br />In the wake of his heart attack, health issues and the passing of his wife, Mr Smith received $26,817.00 in child support for 2004.</p>
+<p style="text-align: justify;"><br />Mr. Smith was rated on a child support income of $58,521.00;</p>
+<p style="text-align: justify;"><br />There's a difference of $31,704.00 for that period;</p>
+<p style="text-align: justify;"><br />The situation is unique to him and he was unable to determine his child support income for the period.</p>
+<p style="text-align: justify;"><br />Because Mr Smith's true income isn't as stated above Child support payments are not justifiable and unjust. Ms. Rose and Mr Smith have equal share of child support expenses.</p>
+<p style="text-align: justify;"><br />JUST AND EQUITABLE</p>
+<p style="text-align: justify;"><br />Mr Smith has succeeded in establishing grounds for departure. It must now be shown that departure would be just and equitable between the parties and the children in accordance with the rules laid by law.</p>
+<p style="text-align: justify;"><br />The extent to which the hearing was required to take into account each of the factors described in s105(4) was addressed in the Auckland case The Marriage of R G and E F Gyselman 15 , Fam 219 LR 240 in which the court stated it "does not mean that it's necessary for every case to rigorously go through every one of the paragraphs. It is contingent on the specific facts of each case and the manner in which they are handled.</p>
+<p style="text-align: justify;"><br />The Court examined the earnings capacity of each parent, their income, assets, and financial assets of each parent, in addition to the commitments each parent made to help their child provide for themselves or other family members.</p>
+<p style="text-align: justify;"><br />The Court heard about Ms. Rose's direct and indirect costs in taking care of her children. It also considered her income and earning potential as any financial hardship she might cause parents or anyone else Mr Smith might need to assist.</p>
+<p style="text-align: justify;"><br />I took into consideration the following I considered the following: the right of children to be looked after by their parents and Ms Rose's right to financial aid from Mr Smith. Mr Smith offers financial assistance to children according the capacity of him to provide the support. Ms Rose and Mr Smith have a shared responsibility for caring for the children.</p>
+<p style="text-align: justify;"><br />This process is a balance action and based upon evidence provided at the Court hearing, a decision is equitable and fair between the parents and the children during the year of child support that ended 31 March 2004.</p>
+<p style="text-align: justify;"><br />OTHERWISE PROPER</p>
+<p style="text-align: justify;"><br />The final condition for the granting of a departure is that it be otherwise proper to do so. At this point, the rights of third parties could be considered.</p>
+<p style="text-align: justify;"><br />This is a change from the standard formula for child support assessment.</p>
+<p style="text-align: justify;"><br />From 1 April 2003 to 31 March 2004 Mr. Smith's child support income will be fixed at $26.817.00.</p>
+<p style="text-align: justify;"><br />This is in full recognition of the 2004 year of child support.</p>
+<p style="text-align: justify;"><br />A party can request an administrative hearing in the event that a new matter arises that wasn't submitted as a part of this Court hearing on different grounds or may apply to the Family Court for departure.</p>
